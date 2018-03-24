@@ -1,1 +1,0 @@
-# ideas_sberbank
